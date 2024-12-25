@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shreya-18-14
 
-- 🌱 I’m currently learning engineering.
+- 🌱 I’m currently studying engineering.
 
 
 
